@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on void
 - 📫 How to reach me idk
 - ❗️void is sexy and cool use client!
-- 💦 i'm a girl btw
+- 💦 
 - 🚴 i love bikes (not joking)
 - 😗 vanilla ice cream and chocolate 😍
 - 😤 hate crackers
